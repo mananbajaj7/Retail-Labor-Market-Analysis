@@ -1,4 +1,4 @@
 # Retail Labor Market Trends                                                                                                                                    
-Retail Labor Market Trends                                                                                                                                    ![image]
+Retail Labor Market Trends                                                                                                                       
 
 
